@@ -19,4 +19,7 @@ currently hyperfixtated on genshin impact and dandys world, its more likely ill 
 
 i have no dni, i block anyone i dont like. i expect the same of others but cannot stop you from doing what you do. 
 
+<img src=https://files.catbox.moe/83ln5a.gif>
+
+
 <img src=https://files.catbox.moe/5sg0jt.png>
