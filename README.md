@@ -1,13 +1,14 @@
 <div align="center">
-<img src=https://files.catbox.moe/99kc7x.png>
-<img src=https://files.catbox.moe/5sg0jt.png>
-<img src=https://i.postimg.cc/yYH5CvLN/Untitled258-20260201091544.png>
+  
+[<img src=https://files.catbox.moe/99kc7x.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
+[<img src=https://files.catbox.moe/5sg0jt.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
+[<img src=https://i.postimg.cc/yYH5CvLN/Untitled258-20260201091544.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
   
 ![](https://komarev.com/ghpvc/?username=girlbrute&color=DB85B2)
 
-melusie ʚ♡ɞ any, it/she pref, tkn
+[melusie](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) ʚ♡ɞ any, it/she pref, [tkn](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
 
-autism+more i dont wanna publicly share. freq unstable, iwc and be mindful 
+autism+more i dont wanna publicly share. freq unstable, [iwc](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) and be mindful 
 
 dont copy my ponies. inspiration is fine, just dont copy. be original. c+h fine always, im usually with oomfies anyway!
 
@@ -24,4 +25,4 @@ i have no dni, i block anyone i dont like. i expect the same of others but canno
 stamp by lovely [sal](https://github.com/Cannibalistic-Ways-Of-Life) <3 /p
 
 
-<img src=https://files.catbox.moe/5sg0jt.png>
+[<img src=https://files.catbox.moe/5sg0jt.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
